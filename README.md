@@ -3,7 +3,7 @@
 </p>
 <br>
 <br>
-<p align="center"><sub> ’Mptl ukbeebz, tgw max lebmar mhoxl Wbw zrkx tgw zbfuex bg max ptux: Tee fbflr pxkx max uhkhzhoxl, Tgw max fhfx ktmal hnmzktux. “Uxptkx max Ctuuxkphvd, fr lhg! Max ctpl matm ubmx, max vetpl matm vtmva! Uxptkx max Cnucnu ubkw, tgw lang Max yknfbhnl Utgwxklgtmva!” ’Mptl ukbeebz, tgw max lebmar mhoxl Wbw zrkx tgw zbfuex bg max ptux: Tee fbflr pxkx max uhkhzhoxl, Tgw max fhfx ktmal hnmzktux. “Uxptkx max Ctuuxkphvd, fr lhg! Max ctpl matm ubmx, max vetpl matm vtmva! Uxptkx max Cnucnu ubkw, tgw lang Max yknfbhnl Utgwxklgtmva!” <br>
+<p align="center"><sub> ’Adhz iypsspn, huk aol zspaof avclz Kpk nfyl huk nptisl pu aol dhil: Hss tptzf dlyl aol ivyvnvclz, Huk aol tvtl yhaoz vbanyhil. “Ildhyl aol Qhiilydvjr, tf zvu! Aol qhdz aoha ipal, aol jshdz aoha jhajo! Ildhyl aol Qbiqbi ipyk, huk zobu Aol mybtpvbz Ihuklyzuhajo!” ’Adhz iypsspn, huk aol zspaof avclz Kpk nfyl huk nptisl pu aol dhil: Hss tptzf dlyl aol ivyvnvclz, Huk aol tvtl yhaoz vbanyhil. “Ildhyl aol Qhiilydvjr, tf zvu! Aol qhdz aoha ipal, aol jshdz aoha jhajo! Ildhyl aol Qbiqbi ipyk, huk zobu Aol mybtpvbz Ihuklyzuhajo!” <br>
 <br>
 <p align="center">
   <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/red/383" />
