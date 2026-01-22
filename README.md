@@ -3,7 +3,7 @@
 </p>
 <br>
 <br>
-<p align="center"><sub> ’Adhz iypsspn, huk aol zspaof avclz Kpk nfyl huk nptisl pu aol dhil: Hss tptzf dlyl aol ivyvnvclz, Huk aol tvtl yhaoz vbanyhil. “Ildhyl aol Qhiilydvjr, tf zvu! Aol qhdz aoha ipal, aol jshdz aoha jhajo! Ildhyl aol Qbiqbi ipyk, huk zobu Aol mybtpvbz Ihuklyzuhajo!” ’Adhz iypsspn, huk aol zspaof avclz Kpk nfyl huk nptisl pu aol dhil: Hss tptzf dlyl aol ivyvnvclz, Huk aol tvtl yhaoz vbanyhil. “Ildhyl aol Qhiilydvjr, tf zvu! Aol qhdz aoha ipal, aol jshdz aoha jhajo! Ildhyl aol Qbiqbi ipyk, huk zobu Aol mybtpvbz Ihuklyzuhajo!” <br>
+<p align="center"><sub> ’Dpao lclyf khf, huk myvt ivao zpklz vm tf pualsspnlujl, aol tvyhs huk aol pualssljabhs, P aobz kyld zalhkpsf ulhyly av aol aybao, if dovzl whyaphs kpzjvclyf P ohcl illu kvvtlk av zbjo h kylhkmbs zopwdyljr: aoha thu pz uva aybsf vul, iba aybsf adv.” <br>
 <br>
 <p align="center">
   <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/red/383" />
